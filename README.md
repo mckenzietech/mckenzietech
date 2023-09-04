@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @mckenzietech
+- 👀 I’m interested in marketing and content creation!
+- 🌱 I’m currently learning SQL!
+- 📫 How to reach me ... mckenziemccc@gmail.com
